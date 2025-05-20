@@ -1,1 +1,1 @@
-its literally a calculator
+literalmente uma calculadora
